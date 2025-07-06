@@ -48,4 +48,4 @@ We may update this Privacy Policy to reflect changes in our App. Updates will be
 
 ## Contact Us
 
-If you have any questions or concerns regarding this Privacy Policy, please contact us at [parshantrathee1020@gmail.com](mailto:parshantrathee1020@gmail.com).
+If you have any questions or concerns regarding this Privacy Policy, please contact us at [ntbindia.pvt@gmail.com](mailto:ntbindia.pvt@gmail.com).
